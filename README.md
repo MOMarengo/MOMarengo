@@ -21,8 +21,8 @@
 
 ### 🌟 Enlaces:
 
-- [LinkedIn] www.linkedin.com/in/mateo-octavio-marengo
-- [Gmail] momarengo@gmail.com
+- LinkedIn www.linkedin.com/in/mateo-octavio-marengo
+- Gmail momarengo@gmail.com
 
 ### 📫 ¡Conéctate conmigo!
 
